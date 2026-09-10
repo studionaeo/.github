@@ -1,4 +1,4 @@
-# Studio NA.EO
+# STUDIO NA.EO
 
 We are a Beijing & Shanghai–based design studio specializing in static or dynamic design and more.
 
